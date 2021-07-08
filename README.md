@@ -1,1 +1,1 @@
-# IA
+# IA - SCHIȚAN ȘTEFAN
