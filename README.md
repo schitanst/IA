@@ -1,1 +1,0 @@
-# IA - SCHIȚAN ȘTEFAN
